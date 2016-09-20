@@ -2,9 +2,9 @@
 Just another repository
 
 
-HelLo Jonathan, 
+Hello Jonathan, 
 
 you made a great goal for Hansa Rostock, I still remember that.
 
-Cheers
+Cheers,
 Benjamin
